@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Robin Yeon from Korea!
+- 👋 Hi, I’m Da-Eun Yeon!
 - 🐶 You are welcome to ask anything about my dog Laphoo!
 - 🌱 This year's goal: NEWBIE ESCAPE
 - 🌊 DON'T GIVE UP 🌊
