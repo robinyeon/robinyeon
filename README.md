@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Da-Eun Yeon!
+- 👋 Hi there!
 - 🐶 Feel free to ask anything about my dog Laphoo!
 - 🌱 This year's goal: NEWBIE ESCAPE
 - 🌊 DON'T GIVE UP 🌊
