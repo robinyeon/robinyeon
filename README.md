@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Da-Eun Yeon!
-- 🐶 You are very welcome to ask anything about my dog Laphoo!
+- 🐶 Feel free to ask anything about my dog Laphoo!
 - 🌱 This year's goal: NEWBIE ESCAPE
 - 🌊 DON'T GIVE UP 🌊
 - 📫 robin.yeon@gmail.com
