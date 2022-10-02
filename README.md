@@ -1,5 +1,5 @@
 - 👋  Hi!
-- 💻  FrontEnd(React) newbie yet aiming full stack
+- 💻  NodeJS newbie yet aiming full stack
 - 🐶  Feel free to ask anything about my dog Laphoo!
 - 🌊  DON'T GIVE UP 🌊
 - 📫  robin.yeon@gmail.com
