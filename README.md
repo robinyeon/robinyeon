@@ -1,5 +1,5 @@
 - 👋  Hi!
-- 💻  NodeJS newbie yet aiming full stack
+- 💻  Trying my best to escape newbie
 - 🐶  Feel free to ask anything about my dog Laphoo!
 - 🌊  DON'T GIVE UP 🌊
 - 📫  robin.yeon@gmail.com
