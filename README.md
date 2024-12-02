@@ -1,7 +1,7 @@
 - 👋  Hi!
-- 💻  Trying my best to escape newbie
-- 🐶  Feel free to ask anything about my dog Laphoo!
-- 🐕‍🦺  Currently fostering Kkami, looking for a forever home! 👉 [Instagram](https://www.instagram.com/kkamimon/)
+- 💻  Enjoy coding and ensuring high software quality.
+- 🐶  Feel free to ask anything about my dog [Laphoo](https://www.instagram.com/laphoos/)!
+- 🐕‍🦺  I recently fostered Kkami to help him find his forever home! 👉 [Instagram](https://www.instagram.com/kkamimon/)
 - 🌊  DON'T GIVE UP 🌊
 - 📫  robin.yeon@gmail.com
 
