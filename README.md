@@ -1,7 +1,6 @@
 - 👋  Hi!
-- 💻  Enjoy coding and ensuring high software quality.
+- 💻  Enjoy coding and ensuring high software security.
 - 🐶  Feel free to ask anything about my dog [Laphoo](https://www.instagram.com/laphoos/)!
-- 🐕‍🦺  I recently fostered Kkami to help him find his forever home! 👉 [Instagram](https://www.instagram.com/kkamimon/)
 - 🌊  DON'T GIVE UP 🌊
 - 📫  robin.yeon@gmail.com
 
